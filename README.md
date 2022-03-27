@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Zwiebel
+- 👀 I’m interested in Basketball, Downhill, Coding, Gaming
+- 🌱 I’m currently learning Python
+- 📫 How to reach me: zwiebel TV#1775
